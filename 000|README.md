@@ -17,6 +17,5 @@ While I welcome feedback and discussion on the ideas presented in this repositor
 
 ## Contact
 
-For inquiries or discussions, please contact connect with me on [LinkedIn](https://www.linkedin.com/in/mandyfiona/).
-
+For inquiries or discussions, please send private message.
 ---
